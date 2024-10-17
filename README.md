@@ -4,7 +4,8 @@
  - 💻 Full Stack Developer
  - 🏫 Undergraduate Student @ BYU - Studying Statistics with emphasis in Data Science, Minor in Computer Science
 
-![1-45fa0f00](https://github.com/user-attachments/assets/ee134748-8b2a-4139-9e94-fff27cef2d6b)
+![IMG_6490](https://github.com/user-attachments/assets/56c1bf30-141d-4a34-ab2c-ccd7a1a1f425)
+
 
 
 ---
